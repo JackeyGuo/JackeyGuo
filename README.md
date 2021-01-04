@@ -1,4 +1,4 @@
-### Hi, i am JckeyGuo 👋
+### 👋 Hi there! I am JckeyGuo.
 
 ---
 
